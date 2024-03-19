@@ -1,1 +1,2 @@
-# l3tlotlo-LETMAL383_BCL2401_GROUP_D1_LetlotloMalope__JSL02
+Duplicate goals prevented
+No issues or difficulties completing challenge
